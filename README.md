@@ -1,1 +1,1 @@
-# Sadly not my PhD 😥
+# Sadly not my PhD 😱
